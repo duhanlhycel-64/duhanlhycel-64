@@ -1,4 +1,4 @@
-### Anneyoeong 👋 I'm Ma. Lhycel R. Duhan
+### Anneyoeng 👋 I'm Ma. Lhycel R. Duhan
 
 **Computer Engineer • Batangas State University - Alangilan Campus**
 
